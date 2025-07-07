@@ -20,4 +20,4 @@
 
 请收藏本页，作为你长期稳定的日本AV免费入口。这里每日更新，永久免费，看片不求人，看片更轻松。如果你希望获取更多专题内容，如“无码合集推荐”“2025番号榜单”“素人精选片单”，我们也将持续更新更多专栏，为你提供完整观影指南。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd54045/55023 ）</span>
